@@ -1,1 +1,1 @@
-:cow::bell:
+:cow::bell::bell:
